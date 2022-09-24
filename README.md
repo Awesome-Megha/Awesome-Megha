@@ -1,5 +1,5 @@
 ![Megha](https://telegra.ph/file/60d2b5990881fd7ad42d5.png)
-# Hi there 👋, I'm 🖤「 Megha™ 」🖤 °•♡왕자♡•°
+# Hi there 👋, I'm 🤍「 Megha™ 」🤍
 
 Hey, I'm Megha Patil, a Web Developer 🚀, Back End Developer & Telegram Bot Developer from India.
 
